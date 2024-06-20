@@ -43,3 +43,5 @@ Answer the following questions based on your understanding of the installation a
 - Cite any references or sources you use in your answers.
 - Submit your completed assignment by 1st July 
 
+
+Answers to assignment  https://docs.google.com/document/d/1pWm_egTKQpvSJLZCfSynD8BGgrQlGHAGl_OvJWEIo7E/edit?usp=sharing
